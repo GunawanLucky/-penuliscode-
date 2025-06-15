@@ -9,4 +9,4 @@ Saya bertanggung jawab pada kualitas WEB DESIGN Saya [sertifikasi dari Universit
 
 Saya juga memiliki gelar Google Associate Android Developer sejak 2015.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/gunawan))ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/gunawan))ku ya.
